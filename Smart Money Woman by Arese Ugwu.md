@@ -6,7 +6,7 @@ Smart Money Woman by *Arese Ugwu*
 
 
 
-Although, the book title appeared to pass a message, I was not sure of what to expect as this was my first time of reading a book on financial literacy from the lenses of a citizen of the country with the largest population of black people on the surface of the earth - Nigeria -, however, deep down I could already feel some sense of a connection to a journey I have always aspired to travel but never had enough strong will to embark on.
+Although, the book title appeared to be quite descriptive, I was not sure of what to expect as this was my first time of reading a book on financial literacy from the lenses of a citizen of the country with the largest population of black people on the surface of the earth - Nigeria -, however, deep down I could already feel some sense of a connection to a journey I have always aspired to travel but never had enough strong will to embark on.
 
 
 
@@ -14,13 +14,37 @@ Chapter 1 - Broke
 
 And the story begins...
 
+Broke	means,	if	you	lost	your	primary
+source	of	income	today,	you	wouldn't	be
+able	to	maintain	the	lifestyle	you	have
+become	accustomed	to	because	you	have	no
+assets	to	rely	on.	
+
+broke	people	think	it	is	about	how
+much	you	earn	but	rich	people	know	it's
+about	how	much	of	your	income	you	are
+able	to	keep	and	convert	into	assets	that	can
+provide	you	with	an	income	in	the	future
+
+Passive	income	in	simple	terms	is	money
+that	you	make	while	you	are	sleeping.	It	is
+the	income	you	get	regularly	from
+investments	you've	already	made
+
+What	Is	Financial	Freedom?
+When	passive	income	exceeds	your
+expenses.
+
+Your	net	worth	is
+your	assets	minus	your	liabilities
+
 
 
 The main character, Zuri, was introduced in a manner that depicts the situation of a typical middle class person in Nigeria.
 
 
 
-One living with a fat salary but not sure where the money goes some before the next salary is paid and wish that the calendar could by some magic shift backwards.
+One living with a fat salary but not sure where the money goes some days before the next salary is paid and wish that the calendar could by some magic shift backwards.
 
 
 
@@ -28,11 +52,11 @@ One with not so extravagant nor a prudent lifestyle, however, debt just somehow 
 
 
 
-Her friend, Tami, seems to be not too different from her and even proposes what an average middle class would think which is to transfer the responsibility of money to someone else.
+Her extroverted childhood friend, Tami, seems to be not too different from her and even proposes what an average middle class would think which is to transfer the responsibility of money to someone else.
 
 
 
-In their case as they are from Africa, it was having a rich husband or a boy friend.
+In their case as they are from Africa, one option was having a rich husband or boy friend ( making Zuri reconsider her independent lifestyle ).
 
 
 
