@@ -49,3 +49,31 @@ I am really looking forward to the next chapter…
 
 Till next time, remain grateful and financially conscious. 
 
+
+Chapter 2 - Money fears
+
+As the pressure from the accumulated debt keeps rising, Zuri finds it extremely difficult to sleep without using sleeping pills.
+
+Weird nightmares show up, all around her money problems as well as her health condition, which she realised would also cost a lot to treat.
+
+The impact of her state of mind is unsurprisingly impacting her performance at work.
+
+One thing I think the Author, Arese Ugwu, tries to chip in or suggest is the importance of mentorship. This is because Zuri's supervisor is portrayed as someone who is especially interested in her career growth despite being oblivous of the trauma Zuri is facing.
+
+Sometimes, we think we are strong enough to achieve anything we set out to do, alone, while ignoring an African proverb:
+
+What an old man sees sitting down, a young man cannot see standing up
+
+And a popular quote by Bob Proctor:
+
+A mentor is someone who sees more talent and ability within you than you see in yourself, and helps bring it out of you.
+
+Although Zuri does not seem interested at this point, I strongly believe the effort to rekindle the drive in Zuri would be revisited sometime later in the book
+
+Zuri had various not-so-good encounters with her family and landlord in an attempt to find a lasting solution to the quagmire she finds herself in, but at the end of the day, she kept wondering how she had been working for eight years and had no assets to show for her hard work.
+
+Another nugget of the book I loved in this chapter is captured below:
+
+What you deny or ignore, you delay; what you accept and face, you conquer. At the end of the day, we are all afraid of something, but the difference between successful people and ordinary people is that they acknowledge their fears but don't let fear overcome them or stop them from achieving their goals.
+
+Till next time, remain grateful and financially fearless.
