@@ -107,3 +107,20 @@ As usual, nuggets for the catpured
 
 
 We	have	to	learn	to spend	with	intention	by	allocating	our resources	to	reflect	the	lifestyle	we	want	and are	able	to	sustainably	afford. Thus, we need to learn	to	control	money instead	of	letting	money	control	us.
+
+Till next time, remain grateful and financially deliberate.
+
+
+Chapter 4 - Dealing with Debt
+
+What began as a harmless one-year old birthday party turned out to be a psychological disaster as one of Zuri's friend, Chinasa, is seen displaying a trait most people are guilty of. Talking about people's deficiensies not for the sake of finding solutions but for mockery.
+
+Forgetting that we as humans all have deficiencies and it is only a matter of time our own turn comes because what goes around comes around. Life is note just about acquiring wealth but also the character we become in the process.
+
+Moreover, if we spend too much time on other people's matter, we may not have enough time to develope and groom ourselves.
+
+Although quite short relative to other chapters, 2 nuggets were deduced from it:
+
+Only	borrow	to	acquire	an asset	that	will	appreciate	in	value
+
+Think	about	the	triggers	that	led	you into	debt	in	the	first	place	and	try	to eliminate	them.	There's	no	point	getting out	of	debt	only	to	dive	back	in.
