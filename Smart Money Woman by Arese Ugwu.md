@@ -77,3 +77,33 @@ Another nugget of the book I loved in this chapter is captured below:
 What you deny or ignore, you delay; what you accept and face, you conquer. At the end of the day, we are all afraid of something, but the difference between successful people and ordinary people is that they acknowledge their fears but don't let fear overcome them or stop them from achieving their goals.
 
 Till next time, remain grateful and financially fearless.
+
+
+Chapter 3 - Where is your money going?
+
+Phew! What a chapter!
+
+The skill of the story-telling technique of the author is really captivating and makes the reader find it easy it play each word as a movie scene in their minds
+
+The chapter could be divided into 3 parts.
+
+It begins with Zuri going the extra mile in trying to figure out an appropriate response to the question posed in the subject of the chapter... Where is my money going?
+
+With complete determination in doing everything possible to get to the root of the matter, Zuri painstakenly goes through her bank statement for the past 12 months and realised how her emotional spending had impacted the depth of her pocket.
+
+Just like many of us, there is this subconscious fear around reviewing or reflecting bank statement at the end of a period e.g. daily, weekly, monthly yearly e.t.c. Little do we know that progress in something cannot be easily achieved if it cannot be measured. As result, we assume once there is always money (whether own or borrowed) to spend there is no need for the extra stress.
+
+Upon resolve to cut down expenses by 50%, Zuri, began to some tangible progress after about six weeks even though the progress was not yet significant.
+
+It is not possible to deny that it has been mentally draining but when life happensone begins to appreciate thoose little wins that help boost ones self-confidence.
+
+She later went ahead to invite her friends to her home for a hangout unlike before where they would go out to expensive or classy restaurants.
+
+The interactions and conversations revealed how diverse eache person experienced or perceived money depending on their circumstances. Since money was not taught in school, the money mindset is largely built upon experiences with parents and observations from the surrounding environments. So we hardly take deliberate actions towards understanding or managing money but subconsciously act according to what we have seen. Which unfortunately leads to bad money habits at varying degrees.
+
+Overall, everyone seemed to be happy on the surface but deep down was a shallow feeling of satisfaction.
+
+As usual, nuggets for the catpured
+
+
+We	have	to	learn	to spend	with	intention	by	allocating	our resources	to	reflect	the	lifestyle	we	want	and are	able	to	sustainably	afford. Thus, we need to learn	to	control	money instead	of	letting	money	control	us.
