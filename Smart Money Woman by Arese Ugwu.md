@@ -119,8 +119,17 @@ Forgetting that we as humans all have deficiencies and it is only a matter of ti
 
 Moreover, if we spend too much time on other people's matter, we may not have enough time to develope and groom ourselves.
 
+Great progress has been made in adoptin financial discipline in virtually all her money activities, however, the outstanding debts were kept in her head without any written plan to close them out.
+
+The next target in improving her financial discipline was to list the pending debts and come up with clear steps on how to settle them as much as possible. It may sound quite simple, the activity helped eased the mental burden of keeping and computing the debts in the head. This further boosts her confidence in forging ahead now that there is some written plan to guide one having realised a thought shared by one of the Founding Fathers of the United States, Benjamin Franklin:
+
+Whoever fails to plan, plans to fail.
+
 Although quite short relative to other chapters, 2 nuggets were deduced from it:
 
 Only	borrow	to	acquire	an asset	that	will	appreciate	in	value
 
 Think	about	the	triggers	that	led	you into	debt	in	the	first	place	and	try	to eliminate	them.	There's	no	point	getting out	of	debt	only	to	dive	back	in.
+
+
+Chapter 4 - Dealing with Debt
