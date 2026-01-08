@@ -132,4 +132,29 @@ Only	borrow	to	acquire	an asset	that	will	appreciate	in	value
 Think	about	the	triggers	that	led	you into	debt	in	the	first	place	and	try	to eliminate	them.	There's	no	point	getting out	of	debt	only	to	dive	back	in.
 
 
-Chapter 4 - Dealing with Debt
+Chapter 5 - Surviving Emergencies
+
+In one day, two major events nearly disrupted her entire life as Zuri's mother witnessed a fire outage in her house while Zuri herself almost also lost her job
+
+2 nuggets caught my eye and thus, captured below:
+
+A	smart	woman	doesn't	wait	for	financial surprises;	she	systematically	saves	toward her	emergency	fund	because	she	knows	that this	is	the	foundation	of	her	financial journey 
+
+An emergency	fund	is	not	there	to	make	you money	but	to	act	as	a	financial	cushion	that protects	your	long	term	investments	from short	term	unexpected	expenses
+
+
+Chapter 6 - Money Goals
+
+Still recoverying from the shocks of the previous day, Zuri was tasked with preparing and presenting a business proposal in behalf of her employer to some prospective investors.
+
+It went largely fine and even her boss seemed quite pleased with her. However, it appeared one of the investors was not impressed.
+
+Fortunately or unfortunately, fate brought them together again at the airport on her way to see her mum. And the conversation turned out to be much more deeper and engaging than any she had ever had in years despite it lasting for some minutes.
+
+The summary of the discussion put her brain to work with below nuggets of activities:
+
+1. Write	down	your	vision	statement.	(What do	you	want	your	legacy	to	be?)
+2. What	are	your	short-term	goals?	What ten	things	do	you	need	to	do	to	achieve 
+them?
+3. What	are	your	long-term	goals?	What ten	things	do	you	need	to	do	to	achieve
+them?
